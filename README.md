@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **HTML , CSS, JAVASCRIPT**
 
-- 📫 How to reach me **garner33000@gmail.com**
+- 📫 How to reach me **clarktown810@yahoo.com**
 
 - ⚡ Fun fact **I am a space enthusiast.**
 
